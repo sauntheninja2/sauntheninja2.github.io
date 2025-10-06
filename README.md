@@ -1,1 +1,2 @@
-Hello This is random blog
+Apathy and the desire to do the right thing
+
